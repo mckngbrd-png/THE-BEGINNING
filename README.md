@@ -1,0 +1,2 @@
+# THE-BEGINNING
+始まり
